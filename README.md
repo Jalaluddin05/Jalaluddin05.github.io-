@@ -1,1 +1,1 @@
-# http://Jalaluddin05.github.io
+Jalaluddin05.github.io
